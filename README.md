@@ -1,1 +1,0 @@
-# -Tasks-for-professional-development-paralaks
